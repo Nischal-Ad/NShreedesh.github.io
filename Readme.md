@@ -2,4 +2,4 @@
 
 > https://shreedeshniroula.com.np
 
-forked from: https://diwasdahal.com.np/
+forked from: https://diwashdahal.com.np/
