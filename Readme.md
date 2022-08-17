@@ -1,5 +1,5 @@
 # Personal Portfolio 🔥
 
-> https://shreedeshniroula.com.np
+> https://nischaladhikari.com.np
 
 forked from: https://diwashdahal.com.np/
