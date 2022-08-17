@@ -2,4 +2,4 @@
 
 > https://nischaladhikari.com.np
 
-forked from: https://diwashdahal.com.np/
+forked from: https://nshreedesh.com.np/
